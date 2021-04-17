@@ -1,2 +1,0 @@
-# OKEN
-Dv:Anas Mohammed
